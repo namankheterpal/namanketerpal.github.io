@@ -1,2 +1,1 @@
-# namanketerpal.github.io
 ## Hello
